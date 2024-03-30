@@ -16,8 +16,8 @@
     <strong> Warum existiert der KV Bergstrasse nicht?</strong><br>
     Naja, das ist eigentlich ganz einfach zu erklären. Der 
     Landesverband Hessen hat den "alten" KV Bergstraße 2021 aufgrund
-    Inaktivität aufgelöst. Nun haben sich eine neue Gruppe von Interessierten gebildet.
-    Und nun warten wir darauf, dass der Landesverband uns eine
+    Inaktivität aufgelöst. Nun hat sich eine neue Gruppe von Interessierten zusammengetan.
+    Und jetzt warten wir darauf, dass der Landesverband uns eine
     Gründungsvertragsvorlage vorlegt. Ohne Gründungsvertragsvorlage
     kann der KV nicht offiziell gegründet werden. Siehe dazu auch
     <a href="https://www.die-partei.de/ov-gruendung/" target="_blank">Gründung eines PARTEI-Gebietsverbandes</a>.
