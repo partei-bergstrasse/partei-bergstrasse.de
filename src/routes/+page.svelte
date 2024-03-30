@@ -15,9 +15,8 @@
   <p class="mt-6">
     <strong> Warum existiert der KV Bergstrasse nicht?</strong><br>
     Naja, das ist eigentlich ganz einfach zu erklären. Der 
-    Landesvorstand Hessen hat den "alten" KV Bergstraße aufgrund
-    Inaktivität aufgelöst.<br>
-    Nun haben sich eine neue Gruppe von Interessierten gebildet.
+    Landesverband Hessen hat den "alten" KV Bergstraße 2021 aufgrund
+    Inaktivität aufgelöst. Nun haben sich eine neue Gruppe von Interessierten gebildet.
     Und nun warten wir darauf, dass der Landesverband uns eine
     Gründungsvertragsvorlage vorlegt. Ohne Gründungsvertragsvorlage
     kann der KV nicht offiziell gegründet werden. Siehe dazu auch
